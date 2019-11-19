@@ -1,1 +1,1 @@
-# JudahBrick i am a sophmore in college
+# JudahBrick I am a senior in college
